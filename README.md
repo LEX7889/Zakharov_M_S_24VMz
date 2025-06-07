@@ -1,2 +1,2 @@
-# Zakharov_M_S_24VMz
+# Захаров.М.С. 24ВМз
 Spring_2025
